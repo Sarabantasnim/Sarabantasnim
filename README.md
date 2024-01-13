@@ -2,7 +2,7 @@
 - 👀 I’m interested in Science.
 - 🌱 I’m currently learning basic things about coding.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me via email.
+- 📫 How to reach me ... via email.
 - 😄 Pronouns: She
 - ⚡ Fun fact: Not a funny Person. 
 
